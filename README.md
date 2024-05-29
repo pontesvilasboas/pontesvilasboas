@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **my startup Inclusive Education, where the project aims to help teachers be prepared to teach children with special needs.**
 
-- 📫 How to reach me **pontesvilasboas@gmail.com**
+- 📫 Reach me at: **pontesvilasboas@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
